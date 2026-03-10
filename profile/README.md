@@ -100,7 +100,7 @@ For inquiries, reach out at **[prozyon.axis@gmail.com](mailto:prozyon.axis@gmail
 
 **PROZYON AXIS**
 
-*Ad Astra*
+\- *Ad Astra* -
 2026
 
 </div>
