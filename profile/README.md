@@ -1,10 +1,6 @@
 <div align="center">
 
 
-
-<br/>
-<br/>
-
 # Prozyon Axis
 
 **Where ideas orbit and connect**
